@@ -1,4 +1,4 @@
 # Study tips
-Who likes studying? Not many people
+Who likes studying? Probably not you
 
 But maybe you can make the experience slightly more enjoyable :))
