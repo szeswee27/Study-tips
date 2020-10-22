@@ -1,4 +1,4 @@
-# Animal-Guide
-A guide for you to better take care of your pets or things to look out for in animals which may save yours or their life 
+# Study tips
+Who likes studying? Not many people
 
-because animals are cool
+But maybe you can make the experience slightly more enjoyable :))
