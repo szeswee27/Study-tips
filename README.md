@@ -1,2 +1,2 @@
-# Animal-guide
-Animal behaviours to look out for
+# Study tips
+
